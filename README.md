@@ -1,1 +1,1 @@
-# sd-030-b-live-lectures
+# Turma 30 - Tribo B
